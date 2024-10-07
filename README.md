@@ -1,5 +1,10 @@
 # Bicho Reactor Música 🎻
 
+Bicho Reaactor en [YouTube](https://www.youtube.com/@BichoReactor).
+
+Bicho Reactor en [Spotify] (https://open.spotify.com/intl-es/artist/4wN7Y9zW0pCSWxTUjF2DqT?si=aRU1l_fCTFyiBIx8IK3W_g).
+
+Bicho Reactor en [Bandcamp] (https://bichoreactor.bandcamp.com/). 
 <!--
 **BichoReactorMusica/BichoReactorMusica** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
