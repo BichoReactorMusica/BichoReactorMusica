@@ -2,6 +2,8 @@
 
 Bicho Reaactor en [YouTube](https://www.youtube.com/@BichoReactor).
 
+Bicho Reactor en [TIDAL](https://tidal.com/artist/15678439/u).
+
 Bicho Reactor en [Spotify](https://open.spotify.com/intl-es/artist/4wN7Y9zW0pCSWxTUjF2DqT?si=aRU1l_fCTFyiBIx8IK3W_g).
 
 Bicho Reactor en [Bandcamp](https://bichoreactor.bandcamp.com/). 
